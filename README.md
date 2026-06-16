@@ -1,5 +1,5 @@
 # 💫 About Me:
-Just A Iranian<br>Nothing Else<br><br>MIGA ! ☀️🦁
+Just An Iranian<br>Nothing Else<br><br>MIGA ! ☀️🦁
 
 
 # 💻 Tech Stack:
